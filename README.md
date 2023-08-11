@@ -15,6 +15,7 @@ At KFC South Africa, we're more than just a fast-food restaurant – we're a bra
 Explore our GitHub repositories to learn more about the technology behind the finger-licking goodness:
 
 **KFC-SA/Recipe-App**:
+
 Discover the magic behind the flavors! This repository houses the code for our interactive recipe app, where you can explore the secret herbs and spices that make our chicken unforgettable.
 
 **KFC-SA/Sustainability-Dashboard**:
