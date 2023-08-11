@@ -38,6 +38,6 @@ Like us on **Facebook**
 Follow us on **Instagram**
 
 
-For inquiries, partnership opportunities, or just to say hi, drop us an comment at kfc-south-africa.info
+For inquiries, partnership opportunities, or just to say hi, drop us an comment at https://kfc-south-africa.info
 
 Remember, it's Finger Lickin' Good! 🍗✨
