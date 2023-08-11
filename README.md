@@ -29,11 +29,14 @@ Join the KFC family! Our careers repository provides information about job oppor
 
 
 Stay updated with the latest from KFC South Africa:
+
 Follow us on **Twitter**
+
 Like us on **Facebook**
+
 Follow us on **Instagram**
 
 
-For inquiries, partnership opportunities, or just to say hi, drop us an email at info@kfcsa.com.
+For inquiries, partnership opportunities, or just to say hi, drop us an comment at kfc-south-africa.info
 
 Remember, it's Finger Lickin' Good! 🍗✨
